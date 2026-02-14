@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vzxrczdev
-- I am a ai cheat creator
+- I am a cheat creator
 - Currently owner for /nothing/
 - contact: xariescompany@gmail.com
 <!---
